@@ -24,7 +24,7 @@ Sexual harassment is any unwelcome behaviour of a sexual nature that makes a per
 - Threatening a person with negative consequences, such as a bad review or termination, if they refuse
 
 
-## What would you do in case you face or witness any incident or repeated incidents of such behaviour?**
+## What would you do in case you face or witness any incident or repeated incidents of such behaviour?
 
 **If I face it:**
 1. **Say no clearly.** If I feel safe, I will tell the person directly that the behaviour is unwelcome and must stop.
